@@ -13,7 +13,7 @@ Ingredients:
 * 2 teaspoons cinnamon
 * 2 mandarin oranges, peeled.
 * 2 teaspoons of egg replacer
-* 4 tablespoons of water
+* 5 tablespoons of water
 * 1 ripe bananas
 * 1/2 cup soy milk
 
